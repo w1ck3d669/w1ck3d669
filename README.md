@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 im a complete newbie, eager to learn and exited to get started, any help will be fully appreciated 🙏🏻🙏🏻
 
 <!--
 **w1ck3d669/w1ck3d669** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
